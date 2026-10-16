@@ -1,0 +1,2 @@
+# SevenSeasPrivacy
+Privacy Policy
